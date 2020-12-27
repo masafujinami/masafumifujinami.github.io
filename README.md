@@ -1,0 +1,1 @@
+# masafumifujinami.github.io
